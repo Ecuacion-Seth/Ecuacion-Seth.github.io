@@ -1,1 +1,0 @@
-# Ecuacion-Seth.github.io
